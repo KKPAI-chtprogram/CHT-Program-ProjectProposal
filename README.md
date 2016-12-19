@@ -160,34 +160,51 @@ We would appreciate any information you could provide for us for funding opportu
 On behalf of the beneficiaries we serve, thank you for your time and considerations. Please don’t hesitate to contact us if you have any questions regarding our programs and projects or how your donations help us. We will be happy to answer your questions.
 
 Contact Information:	AYUB M. SARIUL, Chief Executive Officer
+
 E-mail: chtprogram@yahoo.com or chtprogram@gmail.com
+
 Mobile Nos. +63 9261868016
+
 Kambantangan Sa Kapagungaya Peace Advocate, Incorporated
+
 Bagua-II, Cotabato City 9600, Philippines
 
 You can DONATE any amount towards the CHT Programs and Projects!
 
 HOUSING	                                Any Amount	PhP.
+
 EDUCATION	                              Any Amount	PhP.
+
 OCCUPATIONAL/LVELIHOOD SKILLS TRAINING	Any Amount	PhP.
+
 LEADERSHIP COUNSELING	                  Any Amount	PhP.
 
 Donation on any of the CHT Programs and Projects can be deposited to this Bank’s Account:
 
 Account Name	        :AYUB MALANG SARIUL
+
 Account Number	      :5107727274
+
 Bank’s Name	          :LAND BANK OF THE PHILIPPINES
-Branch	              :Magallanes Branch
+
+Branch	               :Magallanes Branch
+
 Address	              :Don Rofino Alonzo Street, Cotabato City 9600, Philippines
+
 Bank’s Tel. Nos       :(02) 405-7000 or 1-800-10-405-7000
+
 Contact Mobile Phone	:+63 9261868016
 
 For accounting and acknowledgement purposes of any donation:
 
 Name of the Donor	
+
 Amount Donated	
+
 Address	
+
 Contact Number	
+
 Date	
 
 
